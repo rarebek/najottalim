@@ -2,3 +2,4 @@
 
 
 Bu yerga men kalkulyator kodimni yuklab qo'ymoqchiman.
+dhfuldshfl
