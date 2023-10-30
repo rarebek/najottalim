@@ -1,1 +1,1 @@
-&Bo`m bo`sh fayl
+&Bo'm bo'sh fayl
